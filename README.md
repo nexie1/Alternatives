@@ -1,0 +1,2 @@
+# Alternatives
+Pour devenir riche
